@@ -23,4 +23,4 @@ Apaixonado por tecnologia e desejo de mudar o mundo através da computação.
 
 ### Contatos:
 - [Email]()<br/>
-- [whatsapp]()<br/>
+- [whatsapp](https://wa.me/+5562993225306)<br/>
